@@ -10,3 +10,5 @@ Many of life's failures are people who did not realize how close they were to su
 There's a way to do it better - find it.
 
 There is no substitute for hard work.
+
+Success is not final, failure is not fatal: it is the courage to continue that counts.
